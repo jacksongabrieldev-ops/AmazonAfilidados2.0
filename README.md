@@ -1,0 +1,1 @@
+# AmazonAfilidados2.0
